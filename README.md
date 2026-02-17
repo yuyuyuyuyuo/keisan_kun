@@ -1,1 +1,0 @@
-# keisan_kun
